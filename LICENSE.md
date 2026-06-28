@@ -1,4 +1,4 @@
-# 
+# Top Atom predefinições para Mac OS | Exclusivo Atom predefinições para PC Windows. Com ferramentas de replicação e diagramas de banco de dados — otimizado para máximo desempenho em cada plataforma.
 
 
 
